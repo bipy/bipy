@@ -11,5 +11,5 @@ I would be more than glad to share some interesting ideas here ~ At least ... st
 #### About: 
 
 - The more I learn, the less I know
-- Current avatar is credited to [@pixiv](https://www.pixiv.net/artworks/77581179)
+- Current avatar is credited to [@pixiv](https://www.pixiv.net/artworks/85338291)
 
